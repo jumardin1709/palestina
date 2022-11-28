@@ -1,0 +1,2 @@
+# palestina
+Kedamaian
